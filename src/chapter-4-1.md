@@ -1,5 +1,3 @@
-Techniques for Building Self-Awareness in Relation to Embellishment
-==============================================================================
 
 In this chapter, we will delve into various techniques for building self-awareness in relation to embellishment. Understanding ourselves and our unique creative preferences is essential when it comes to the art of embellishment. By cultivating self-awareness, we can tap into our imagination, hone our skills, and create truly meaningful and authentic embellished artworks. Let's explore some techniques that can help us build self-awareness in this creative process.
 

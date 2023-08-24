@@ -1,5 +1,3 @@
-The Impact of Imagination and Creativity on Embellishment
-====================================================================
 
 In the world of embellishment, imagination and creativity play a significant role in shaping the outcome of artistic endeavors. This chapter explores the profound impact that imagination and creativity have on the art of embellishment, showcasing how they can transform ordinary objects into extraordinary works of beauty and texture.
 

@@ -1,5 +1,3 @@
-Chapter 6: Balancing Aesthetics and Functionality
-=================================================
 
 Balancing aesthetics and functionality is a crucial aspect of embellishment. While creating visually stunning pieces is important, it's equally essential to ensure that the piece serves a practical purpose. In this chapter, we will explore the role of balancing aesthetics and functionality in embellishment, techniques for achieving balance, and how to build problem-solving and design thinking skills.
 

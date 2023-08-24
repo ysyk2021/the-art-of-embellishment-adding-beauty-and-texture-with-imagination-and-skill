@@ -1,5 +1,3 @@
-Building Technical Skills and Knowledge
-==================================================
 
 To truly master the art of embellishment and create beautiful, textured works, it is essential to develop strong technical skills and knowledge. This chapter will guide you through the process of honing your craft, from learning foundational techniques to expanding your understanding of materials, tools, and design principles. By building a solid foundation, you can unleash your imagination and skillfully bring your embellished creations to life.
 

@@ -1,5 +1,3 @@
-Techniques for Developing a Growth Mindset
-=====================================================
 
 In the world of artistic embellishment, developing a growth mindset is essential for continuous growth, exploration, and mastery. A growth mindset is the belief that one's abilities and intelligence can be developed through dedication, effort, and a willingness to learn. In this chapter, we will explore various techniques that artists can employ to cultivate a growth mindset and enhance their artistic journey.
 

@@ -1,5 +1,3 @@
-Chapter 7: Incorporating Meaning and Symbolism
-==============================================
 
 The beauty of embellishment lies not only in its aesthetic appeal but also in its ability to convey meaning and symbolism. When done well, embellishment can communicate powerful messages, evoke emotions, and tell stories. In this chapter, we will explore the importance of incorporating meaning and symbolism in embellishment, techniques for doing so, and building storytelling and communication skills.
 

@@ -1,5 +1,3 @@
-The Importance of Navigating Materials and Techniques in Embellishment
-==================================================================================
 
 In the world of embellishment, materials and techniques are the building blocks that artists utilize to add beauty, texture, and depth to their artwork. Understanding and navigating this vast landscape of materials and techniques is essential for artists seeking to create visually captivating and skillfully executed embellishments. In this chapter, we will explore the significance of exploring, selecting, and mastering materials and techniques in the art of embellishment.
 

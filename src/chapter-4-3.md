@@ -1,5 +1,3 @@
-Building Creativity and Inspiration
-==============================================
 
 In this chapter, we will explore techniques and strategies for building creativity and finding inspiration in the art of embellishment. Creativity is the driving force behind imaginative and unique embellished artworks, while inspiration fuels our artistic journey. By cultivating creativity and seeking inspiration, we can infuse our embellished pieces with beauty, imagination, and skill. Let's delve into various methods to build creativity and find inspiration.
 

@@ -1,5 +1,3 @@
-Chapter 4: Navigating Materials and Techniques
-==============================================
 
 The art of embellishment requires an understanding of materials and techniques. By navigating the vast array of materials available and mastering various techniques, individuals can create work that is both beautiful and unique. In this chapter, we will explore the importance of navigating materials and techniques in embellishment, techniques for doing so, and strategies for building technical skills and knowledge.
 

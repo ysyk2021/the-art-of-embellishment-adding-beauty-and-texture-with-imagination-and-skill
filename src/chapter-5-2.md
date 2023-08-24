@@ -1,5 +1,3 @@
-Techniques for Navigating Materials and Techniques
-=============================================================
 
 Embarking on the artistic journey of embellishment requires a deep understanding of materials and techniques. This chapter delves into the intricacies of working with various materials and explores essential techniques that will empower you to navigate them effectively, enabling you to create stunning pieces full of beauty, texture, and skill.
 

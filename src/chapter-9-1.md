@@ -1,5 +1,3 @@
-Using Embellishment for Personal Expression
-======================================================
 
 Embroidery, beading, fabric manipulation, and other embellishment techniques offer a rich and versatile palette for personal expression. This chapter explores how artists can harness the power of embellishment to convey their unique identities, emotions, and stories, making their artistic creations truly personal and meaningful.
 

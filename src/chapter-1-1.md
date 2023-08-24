@@ -1,5 +1,3 @@
-Why Embellishment is Important
-=========================================
 
 Embellishment, the art of adding beauty and texture through imagination and skill, holds significant importance in the world of artistic expression. In this chapter, we will explore why embellishment is essential and the impact it has on both the artist and the audience.
 

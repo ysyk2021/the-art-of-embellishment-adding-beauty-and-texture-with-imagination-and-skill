@@ -1,4 +1,4 @@
-# Introduction
+
 
 The Art of Embellishment: Adding Beauty and Texture with Imagination and Skill is a book that celebrates the art of embellishment, an ancient craft that has been practiced for centuries. Embellishment is the art of adding beauty and texture to objects through the use of various materials and techniques. It is a form of artistic expression that can transform any object into a unique and personalized work of art.
 

@@ -1,5 +1,3 @@
-Building Branding and Marketing Skills
-==================================================================================================
 
 Effective embellishment can be a powerful tool in building a successful career in the creative industries. By incorporating unique and visually stunning designs into your work, you can create a strong brand identity and stand out from the competition. In this chapter, we will explore how to apply embellishment to professional practice and build branding and marketing skills.
 

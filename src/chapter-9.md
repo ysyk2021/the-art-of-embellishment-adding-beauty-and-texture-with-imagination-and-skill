@@ -1,5 +1,3 @@
-Chapter 8: Applying Embellishment to Personal Expression
-========================================================
 
 Embellishment is a beautiful and creative practice that offers endless possibilities for personal expression. From fashion and home decor to personal accessories and gifts, embellishment can add beauty and texture to everyday objects and reflect your personal style and vision. In this chapter, we will explore how to apply embellishment to personal expression.
 

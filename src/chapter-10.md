@@ -1,5 +1,3 @@
-Chapter 9: Applying Embellishment to Professional Practice
-==========================================================
 
 Embellishment is not only a beautiful and creative practice, but it can also be applied to professional practice. From fashion design and interior decorating to product development and branding, embellishment can enhance the visual appeal of a product or service and create a unique and memorable experience for customers. In this chapter, we will explore how to apply embellishment to professional practice.
 
@@ -22,5 +20,4 @@ Conclusion
 ----------
 
 Applying embellishment to professional practice offers endless possibilities for enhancing the visual appeal of products or services. By using embellishment techniques such as embroidery, beading, painting, or printing, you can create unique and visually stunning pieces that reflect your personal style and vision. Setting goals for professional embellishment projects, building branding and marketing skills, and understanding customer needs are essential for achieving success in professional practice. So go forth and experiment, and let your creativity run wild!
-
 

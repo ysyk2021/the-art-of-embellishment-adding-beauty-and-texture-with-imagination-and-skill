@@ -1,5 +1,3 @@
-Introduction
-============
 
 The art of embellishment is a beautiful and creative practice that offers endless possibilities for self-expression and innovation. From embroidery and beading to applique, printing, and painting, there are many different types of embellishment to explore and experiment with. In this book, we will explore the world of embellishment and how it can add beauty and texture to everyday objects.
 
@@ -22,5 +20,4 @@ Conclusion
 ----------
 
 The art of embellishment is a beautiful and rewarding practice that offers endless opportunities for self-expression and innovation. By embracing the challenges of effective embellishment and continuing to learn and grow, you can unlock your creativity and express yourself through this beautiful art form. So go forth and create, and let your imagination run wild!
-
 

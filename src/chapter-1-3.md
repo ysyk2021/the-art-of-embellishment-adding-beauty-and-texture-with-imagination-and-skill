@@ -1,5 +1,3 @@
-The Role of the Art of Embellishment
-===============================================
 
 Embellishment is more than just a decorative technique; it plays a pivotal role in the world of art and design. This chapter delves into the significance and multifaceted role that the art of embellishment plays in enhancing beauty, texture, and meaning in various creative endeavors.
 

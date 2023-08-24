@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Building self-awareness is a critical component of mastering the art of embellishment. By understanding your strengths and weaknesses, cultivating creativity and inspiration, and developing a personalized approach to your craft, you can create work that is unique, beautiful, and meaningful. In this chapter, we will explore techniques for building self-awareness in relation to embellishment.
 

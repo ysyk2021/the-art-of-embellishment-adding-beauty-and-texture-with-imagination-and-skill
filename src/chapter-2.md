@@ -1,5 +1,3 @@
-Chapter 1: Understanding Embellishment
-======================================
 
 Embellishment is the practice of adding decorative elements to objects to enhance their beauty and visual appeal. It involves using a variety of techniques and materials to create unique and visually stunning pieces. In this chapter, we will explore what embellishment is, the different types of embellishment, and the benefits of effective embellishment.
 

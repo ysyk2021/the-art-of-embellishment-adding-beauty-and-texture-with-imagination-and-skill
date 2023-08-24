@@ -1,5 +1,3 @@
-What is Embellishment?
-=================================
 
 Embellishment is a transformative art form that adds beauty, texture, and intricacy to various objects, surfaces, and materials. It is a creative process that involves enhancing and enriching the visual and tactile qualities of a piece through the skillful use of decorative elements. In this chapter, we will explore the essence of embellishment, its historical significance, and its wide-ranging applications in art and design.
 

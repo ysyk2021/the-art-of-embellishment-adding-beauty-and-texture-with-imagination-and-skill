@@ -1,5 +1,3 @@
-Building Problem-Solving and Design Thinking Skills
-==============================================================
 
 In the world of embellishment, creativity and skill go hand in hand with problem-solving and design thinking. Artists who possess these skills can tackle challenges, overcome obstacles, and create innovative and visually captivating artwork. In this chapter, we will explore how artists can develop and refine their problem-solving and design thinking abilities, enabling them to push the boundaries of embellishment and create unique and engaging pieces.
 

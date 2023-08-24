@@ -1,5 +1,3 @@
-Types of Embellishment
-=================================
 
 Embellishment encompasses a wide range of techniques and approaches, each adding its own unique touch of beauty and texture to artistic creations. In this chapter, we will explore various types of embellishment, from traditional to contemporary methods, showcasing the diversity and potential for creative expression within this art form.
 

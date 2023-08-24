@@ -1,5 +1,3 @@
-Building Storytelling and Communication Skills
-=========================================================
 
 In the art of embellishment, storytelling and effective communication are essential skills that allow artists to convey their messages and engage viewers on a deeper level. This chapter explores techniques and strategies for developing storytelling and communication skills within the context of embellishment, enabling artists to create meaningful and impactful works.
 

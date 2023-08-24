@@ -1,5 +1,3 @@
-Building Conceptualization and Visualization Skills
-====================================================================================================
 
 Embellishment is an art form that requires imagination and creativity. To add beauty and texture to any piece, it's essential to develop strong conceptualization and visualization skills.
 

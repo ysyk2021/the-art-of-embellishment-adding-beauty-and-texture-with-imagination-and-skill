@@ -1,5 +1,3 @@
-Overcoming Obstacles to Effective Embellishment
-==========================================================
 
 Embarking on the journey of embellishment can be both exciting and challenging. Throughout the creative process, artists may encounter various obstacles that hinder the effectiveness of their embellishments. In this chapter, we will explore some common hurdles faced by artists and discuss strategies for overcoming them.
 

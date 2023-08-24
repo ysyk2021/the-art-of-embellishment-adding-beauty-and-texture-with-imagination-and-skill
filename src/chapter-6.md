@@ -1,5 +1,3 @@
-Chapter 5: Embracing Imagination and Creativity
-===============================================
 
 Embellishment is a creative practice that offers endless possibilities for self-expression and innovation. Imagination and creativity are essential for effective embellishment, allowing us to develop unique designs and techniques that reflect our personal style and vision. In this chapter, we will explore the impact of imagination and creativity on embellishment and techniques for embracing them.
 

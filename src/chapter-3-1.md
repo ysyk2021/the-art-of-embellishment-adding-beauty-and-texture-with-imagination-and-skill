@@ -1,5 +1,3 @@
-Understanding the Importance of a Growth Mindset in Embellishment
-============================================================================
 
 In the world of artistic embellishment, developing a growth mindset is essential for continuous growth, exploration, and mastery. A growth mindset is the belief that one's abilities and intelligence can be developed through dedication, effort, and a willingness to learn. In this chapter, we will explore the importance of a growth mindset in the context of embellishment and how it can enhance an artist's creative journey.
 
