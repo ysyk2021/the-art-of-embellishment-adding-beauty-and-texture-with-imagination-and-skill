@@ -8,3 +8,7 @@ Whether you are a seasoned artist or a beginner crafter, this book provides valu
 With clear and concise instructions, beautiful photography, and inspiring examples, The Art of Embellishment: Adding Beauty and Texture with Imagination and Skill is a valuable resource for anyone interested in exploring the beauty and potential of embellishment.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
