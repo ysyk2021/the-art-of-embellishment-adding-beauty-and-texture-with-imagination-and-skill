@@ -1,5 +1,4 @@
-Chapter: Building Branding and Marketing Skills
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of building branding and marketing skills in the art of embellishment. Effective branding and marketing strategies are essential for promoting and showcasing your work, attracting customers, and establishing a unique identity in the creative industry. By developing these skills, you can enhance your ability to create beauty and texture while successfully connecting with your target audience.
 

@@ -1,5 +1,4 @@
-Chapter: Using Embellishment for Professional Practice
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the utilization of embellishment in professional practice. Embellishment is not only a creative technique but also a powerful tool for enhancing artistic expression and adding value to various industries. We explore how artists, designers, and artisans can leverage embellishment to elevate their professional careers, expand their market reach, and create unique and captivating products.
 

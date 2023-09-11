@@ -1,5 +1,4 @@
-Chapter: Setting Goals for Professional Embellishment Projects
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of setting goals for professional embellishment projects. Clear and well-defined goals provide a roadmap for your artistic endeavors, enabling you to focus your imagination and skills toward achieving meaningful outcomes. By establishing goals, you can enhance your creative process, improve project management, and measure your success as an embellishment artist.
 
